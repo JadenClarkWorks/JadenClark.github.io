@@ -1,1 +1,1 @@
-# JadenClark.github.io
+# Current Sophomore at the Columbus School of Art and Design, majoring in 2D animation. A member of the Business Professionals of America, he has spent a considerable amount of time working with Adobe, ToonBoom, and Clip Studio software. Passionate about animation, storyboarding, illustration, and storytelling in any shape or form. Currently Based in Columbus, Ohio.
